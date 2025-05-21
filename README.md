@@ -22,3 +22,5 @@
 ---
 
 它呢哥 2021.4.7
+
+捐赠地址：1F98tuNGDAPZiVboFhaDWpeh3QpDyoKM16
